@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **setupwithsynzx@gmail.com**
 
-- ⚡ Fun fact **I❤️Music and Watching Anime🤭**
+- ⚡ Fun fact **I❤️Gaming and Watching Anime🤭**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
